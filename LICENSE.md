@@ -1,4 +1,4 @@
-
+new jujutsu infinite Scripts is the best jujutsu infinite Script, featuring no clip and no cooldown. Safe and powerful for all your needs.
 
 
 
